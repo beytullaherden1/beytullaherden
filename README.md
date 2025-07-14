@@ -1,2 +1,0 @@
-# beytullaherden
-Beytullah Erden potfolyosu
